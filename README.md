@@ -7,7 +7,7 @@
 
 - 🎓I graduated from **Istanbul Techincal University with bachelor's degree.**
 
-- 💻 I love **writing code and learn anythings about it.**
+- 💻 I love **writing code and learn about it.**
 
 - 📫 How to reach me **enz.9735@gmail.com**
 
